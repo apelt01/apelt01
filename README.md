@@ -1,2 +1,2 @@
 
-[Profile photo by Dick Mansfield] (https://www.flickr.com/photos/usfwshq "Flickr US Fish and Wildlife")
+[Profile photo by Dick Mansfield] (https://www.flickr.com/photos/usfwshq)
